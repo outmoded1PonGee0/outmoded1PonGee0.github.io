@@ -1,2 +1,2 @@
 # Hello!
-Emma Cedo
+*This page is using Jekyll's hacker theme*
