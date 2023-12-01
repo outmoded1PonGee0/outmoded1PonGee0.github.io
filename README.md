@@ -1,11 +1,23 @@
-## Hello!
-# *This page is using Jekyll's hacker theme.*
+# Hello!
+# This page is using Jekyll's hacker theme.
 
+
+![Duck Walk GIF - Duck Walk - Discover   Share GIFs](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/09bf2fd5-85c8-4d8b-ba8e-afb8033add97)
+*-Walk Duck.*
+*-NO.*
+
+
+*https://youtu.be/hiRacdl02w4?si=qNL8VXoXqpWXfh0l*
+
+
+### Kitty!
 
 ![spinning-cat-maxwell](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/4172ee6f-8b5c-4bd2-8429-8c231aed08a3)
 
-![image](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/3ffc2d34-fc15-493f-9fee-f598cd70c9af)
-
 ![image](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/05e73bde-46a1-41cd-956c-7d3e9efaccea)
 
-*https://youtu.be/hiRacdl02w4?si=qNL8VXoXqpWXfh0l*
+
+| Gordon Ramsay recipes     | CARVING |
+| ----------- | ----------- |
+| Slow-cooked tomatoes | For even-size plump lamb cutlets when carving: starting at one end, cut between the bones and discard the fourth bone, then continue and again discard the fourth bone—make sure it’s just the bone, leave all the meat on. |
+| Rack of lamb with a warm salad of mixed beans & slow-roast tomatoes | Tomato |
