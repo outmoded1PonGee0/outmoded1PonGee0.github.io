@@ -11,7 +11,6 @@
 
 *-Walk Duck.*
 
-
 *-NO.*
 
 
@@ -31,6 +30,10 @@
 
 
 
+
+
+
+
 | Gordon Ramsay recipes     | CARVING |
 | :---| :--- |
 | Slow-cooked tomatoes | Tomato. |
@@ -39,9 +42,13 @@
 
 
 
-&nbsp; &nbsp; &nbsp; &nbsp;Porsche?
+
+
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;Porsche? --> 
 **Porsche 918 Spyder**
 
 
-&nbsp; &nbsp; &nbsp; &nbsp;Koenigsegg!?
+&nbsp; &nbsp; &nbsp; &nbsp;Koenigsegg!? --> 
  **Koenigsegg Jesko Absolut**
