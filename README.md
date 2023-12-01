@@ -8,4 +8,4 @@
 
 ![image](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/05e73bde-46a1-41cd-956c-7d3e9efaccea)
 
-***https://youtu.be/hiRacdl02w4?si=qNL8VXoXqpWXfh0l*
+*https://youtu.be/hiRacdl02w4?si=qNL8VXoXqpWXfh0l*
