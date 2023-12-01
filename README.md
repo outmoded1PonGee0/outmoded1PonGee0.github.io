@@ -11,9 +11,9 @@
 
 *-Walk Duck.*
 
-*-NO.*
+*-???*
 
-
+*-What an idiot!*
 
 
 *https://youtu.be/hiRacdl02w4?si=qNL8VXoXqpWXfh0l*
@@ -35,9 +35,10 @@
 
 
 | Gordon Ramsay recipes     | CARVING |
-| :---| :--- |
+| :---| :----: |
 | Rack of lamb with a warm salad of mixed beans & slow-roast tomatoes | For even-size plump lamb cutlets when carving: starting at one end, cut between the bones and discard the fourth bone, then continue and again discard the fourth bone—make sure it’s just the bone, leave all the meat on. |
-| Slow-cooked tomatoes | Tomato. |
+| ----------- | ----------- |
+| Slow-cooked tomatoes | ~~Tomato.~~ |
 
 
 
