@@ -4,11 +4,6 @@
 
 
 
-![_GASP-](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/d3178e13-f0a4-4d9a-8c5d-3fb4c2133f98)
-
-
-
-
 ![Duck Walk GIF - Duck Walk - Discover   Share GIFs](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/09bf2fd5-85c8-4d8b-ba8e-afb8033add97)
 
 
@@ -57,10 +52,3 @@
 
 &nbsp; &nbsp; &nbsp; &nbsp;Koenigsegg!? --> 
  **Koenigsegg Jesko Absolut**
-
-
-
-
-
-
-https://open.spotify.com/track/5LNi0DUiEQ4Sp6JA5XUSIA?si=edb9d140fd1a452e
