@@ -7,15 +7,12 @@
 
 
 
+Dialogue upcoming:
 
-*-Walk Duck.*
-
-*-???*
-
-*-What an idiot!*
+*"So what? I already made it clear that I'm not coming with you!."* shouted the old lady. He knows he can't communicate, that's why he expected the worst storm coming right at him! *"What an idiot!"* *He told himself.* 
 
 
-*[https://youtu.be/hiRacdl02w4?si=qNL8VXoXqpWXfh0l](https://www.youtube.com/watch?v=hiRacdl02w4)*
+https://www.youtube.com/watch?v=hiRacdl02w4
 
 
 
