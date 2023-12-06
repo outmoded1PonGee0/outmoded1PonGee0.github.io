@@ -39,31 +39,21 @@
 | Slow-cooked tomatoes | ~~Tomato.~~ *Excellent with the lamb!*  |
 
 
+| Porsche | Koenigsegg |
+| --- | ----------- |
+|  **Porsche 918 Spyder**  | **Koenigsegg Jesko Absolut** |
+| The Porsche 918 Spyder engine is a V8 that's combined with two electric motors, allowing for strategically crafted speed and extravagance. There's plenty to appreciate with this Porsche sports car and here are a few Porsche 918 specs you can appreciate behind the wheel: V8 engine with dual electric motors. 887 hp. | The Jesko Absolut features a tuned suspension setup that is more tailored to extreme high speeds and less downforce. The front hood air dam, as well as the front triplex system is removed as they are needed for the Absolut. These modifications give the opportunity for a larger front luggage space in the Absolut. |
+
+&nbsp; &nbsp; &nbsp; &nbsp;
 
 
+**0961 732 7004**
 
 
+&nbsp; &nbsp; &nbsp; &nbsp;
 
 
+emcedo@gbox.adnu.edu.ph
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;Porsche? --> 
-**Porsche 918 Spyder**
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;Koenigsegg!? --> 
- **Koenigsegg Jesko Absolut**
+&nbsp; &nbsp; &nbsp; &nbsp;
