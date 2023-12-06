@@ -6,9 +6,6 @@
 ![Duck Walk GIF - Duck Walk - Discover   Share GIFs](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/09bf2fd5-85c8-4d8b-ba8e-afb8033add97)
 
 
-
-Dialogue upcoming:
-
 *"So what? I already made it clear that I'm not coming with you!."* shouted the old lady. He knows he can't communicate, that's why he expected the worst storm coming right at him! *"What an idiot!"* *He told himself.* 
 
 
