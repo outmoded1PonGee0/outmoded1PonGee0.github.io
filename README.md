@@ -1,5 +1,5 @@
 # Hello!
-# This page is using Jekyll's hacker theme.
+# This page is jekyll-theme-midnight.
 
 
 
