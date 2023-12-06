@@ -1,5 +1,5 @@
 # Hello!
-# This page is jekyll-theme-midnight.
+# This page is Jekyll-theme-midnight.
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
@@ -11,10 +11,15 @@
 
 [Red-Handed!!!](https://www.youtube.com/watch?v=hiRacdl02w4)
 
+
 &nbsp; &nbsp; &nbsp; &nbsp;
 
-### *Kitty!*
-**Милый котик, жаждущий мирового господства!!**
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+### **Kitty!**
+*Милый котик, жаждущий мирового господства!!*
 
 ![spinning-cat-maxwell](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/4172ee6f-8b5c-4bd2-8429-8c231aed08a3)
 
@@ -42,7 +47,7 @@
 | Porsche | Koenigsegg |
 | --- | ----------- |
 |  **Porsche 918 Spyder**  | **Koenigsegg Jesko Absolut** |
-| The Porsche 918 Spyder engine is a V8 that's combined with two electric motors, allowing for strategically crafted speed and extravagance. There's plenty to appreciate with this Porsche sports car and here are a few Porsche 918 specs you can appreciate behind the wheel: V8 engine with dual electric motors. 887 hp. | The Jesko Absolut features a tuned suspension setup that is more tailored to extreme high speeds and less downforce. The front hood air dam, as well as the front triplex system is removed as they are needed for the Absolut. These modifications give the opportunity for a larger front luggage space in the Absolut. |
+| The Porsche 918 Spyder engine is a V8 combined with two electric motors, allowing for strategically crafted speed and extravagance. There's plenty to appreciate with this Porsche sports car and here are a few Porsche 918 specs you can appreciate behind the wheel: V8 engine with dual electric motors—887 hp. | The Jesko Absolut features a tuned suspension setup that is more tailored to extremely high speeds and less downforce. The front hood air dam and the front triplex system are removed as they are needed for the Absolut. These modifications allow a larger front luggage space in the Absolut. |
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
@@ -64,7 +69,6 @@ Contact me:
 
 
 **0961 732 7004**
-
 
 *emcedo@gbox.adnu.edu.ph*
 
