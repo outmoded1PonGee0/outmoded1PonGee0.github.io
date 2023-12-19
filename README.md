@@ -1,32 +1,27 @@
-# Hello!
-# This page is Jekyll-theme-midnight.
+# Welcome! This page is Jekyll-theme-midnight.
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
-![Duck Walk GIF - Duck Walk - Discover   Share GIFs](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/09bf2fd5-85c8-4d8b-ba8e-afb8033add97)
+ ## **In the beginning, God created the heavens and the earth.** ***Genesis 1:1***
 
+![1000_F_608120943_OZsJELOgxakJkt0P3NJiOuLYcQSHNx4v](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/32099ef7-e9d6-4ac9-9590-fbfcff9689f0)
 
-*"So what? I already made it clear that I'm not coming with you!."* shouted the old lady. He knows he can't communicate, that's why he expected the worst storm coming right at him! *"What an idiot!"* *He told himself.* 
+*The expression "genesis" has multiple meanings in different settings, each containing the underlying concept of origin or beginning. "Genesis" is the first book of the Bible in religious traditions, primarily in Judeo-Christian beliefs, chronicling the creation of the universe, the rise of humanity, and the early history of the Israelites.* 
 
-
-[Red-Handed!!!](https://www.youtube.com/watch?v=hiRacdl02w4)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
+[The start of all.](https://www.youtube.com/watch?v=KOUV7mWDI34)
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
 
-### **Kitty!**
-*Милый котик, жаждущий мирового господства!!*
-
-![spinning-cat-maxwell](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/4172ee6f-8b5c-4bd2-8429-8c231aed08a3)
-
-![image](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/05e73bde-46a1-41cd-956c-7d3e9efaccea)
-
-
 &nbsp; &nbsp; &nbsp; &nbsp;
+
+
+### **The Book of Exodus**
+*The LORD will fight for you while you only need to keep silent and remain calm. -Exodus 14:14*
+
+![1867_Edward_Poynter_-_Israel_in_Egypt](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/8a667f59-8942-4319-9fc7-83060513e887)
+
+This digs into the situation of the Israelites, who are captive in Egypt and subjected to severe conditions. Moses, the pivotal figure, emerges as a significant leader and heavenly interventionist. Moses is summoned to confront Pharaoh and seek the emancipation of his people through a series of miracles and heavenly manifestations, including the famous story of the burning bush. The story progresses via dramatic events like as the 10 plagues, each increasing in intensity until the Passover and the Israelites' quick evacuation from Egypt. The tale culminates with a dramatic crossing of the Red Sea, symbolising their freedom from servitude. 
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
@@ -35,25 +30,13 @@
 &nbsp; &nbsp; &nbsp; &nbsp;
 
 
-| Gordon Ramsay recipes     | CARVING |
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+| Genesis     | Exodus |
 | :---| :----: |
-| Rack of lamb with a warm salad of mixed beans & slow-roast tomatoes | For even-size plump lamb cutlets when carving: starting at one end, cut between the bones and discard the fourth bone, then continue and again discard the fourth bone—make sure it’s just the bone, leave all the meat on. |
-| Slow-cooked tomatoes | ~~Tomato.~~ *Excellent with the lamb!*  |
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
-| Porsche | Koenigsegg |
-| --- | ----------- |
-|  **Porsche 918 Spyder**  | **Koenigsegg Jesko Absolut** |
-| The Porsche 918 Spyder engine is a V8 combined with two electric motors, allowing for strategically crafted speed and extravagance. There's plenty to appreciate with this Porsche sports car and here are a few Porsche 918 specs you can appreciate behind the wheel: V8 engine with dual electric motors—887 hp. | The Jesko Absolut features a tuned suspension setup that is more tailored to extremely high speeds and less downforce. The front hood air dam and the front triplex system are removed as they are needed for the Absolut. These modifications allow a larger front luggage space in the Absolut. |
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
+| And God said, Let there be light, and there was light. And God saw that the light was good. | The LORD is my strength and my defense; he has become my salvation. He is my God, and I will praise him, my father’s God, and I will exalt him.. |
+| And I will make of you a great nation, and I will bless you and make your name great so that you will be a blessing. | For I am the Lord, who heals you. |
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
