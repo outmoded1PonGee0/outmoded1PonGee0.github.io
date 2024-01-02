@@ -1,4 +1,4 @@
-# Welcome! This page is Jekyll-theme-midnight.
+# Welcome!
 
 
 Lol, I forgot to ask the history of my parish. 🥲
