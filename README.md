@@ -194,6 +194,13 @@ Sunday
 
 6:00 P.M. - English
 
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+![Our Lady of La Porteria Parish - Calabanga, Camarines Sur - Altar](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/1472992f-0d82-4cba-a942-3864957badf7)
+
+
 &nbsp; &nbsp; &nbsp; &nbsp;
 
 
