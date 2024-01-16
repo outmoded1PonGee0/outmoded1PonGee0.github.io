@@ -24,6 +24,13 @@ Msgr. On April 4, 1999, the Vicar General of Caceres, Jose R. Rojas, blessed the
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
+
+<iframe src="https://www.google.com/maps/embed?pb=!4v1705388118659!6m8!1m7!1sa0klXH-tu7Dz5M6dU4Kbyg!2m2!1d13.7079826126808!2d123.2150585615726!3f107.27430233511757!4f-0.24341063560639498!5f0.7820865974627469" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
 Parish Priest and Parochial Vicar appointed to Our Lady of La Porteria Parish in Calabanga
 
 1749 july 15- Fray Jose de Bastida
