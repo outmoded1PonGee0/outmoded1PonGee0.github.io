@@ -22,10 +22,17 @@ Msgr. On April 4, 1999, the Vicar General of Caceres, Jose R. Rojas, blessed the
 
 <iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d1293.5184607009692!2d123.21531618432344!3d13.707798043196851!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x33a1f1805135b981%3A0x8c2ad851f53981a8!2sOur%20Lady%20of%20La%20Porteria%20Parish!5e0!3m2!1sen!2sus!4v1704728072986!5m2!1sen!2sus" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
 
+
+The Parroquia de Nuestra Señora de la Porteria is located in Calabanga, a municipality in the province of Camarines Sur, Philippines. Calabanga is part of the Bicol Region, which is located in the southeast of Luzon, the Philippines' main island. Camarines Sur, a province in the centre of the Bicol Region, is home to a variety of villages, including the town of Calabanga. 
+
+
 &nbsp; &nbsp; &nbsp; &nbsp;
 
 
 <iframe src="https://www.google.com/maps/embed?pb=!4v1705388118659!6m8!1m7!1sa0klXH-tu7Dz5M6dU4Kbyg!2m2!1d13.7079826126808!2d123.2150585615726!3f107.27430233511757!4f-0.24341063560639498!5f0.7820865974627469" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+
+
+To locate the Parroquia de Nuestra Señora de la Porteria in Calabanga, use particular address data or coordinates. Using internet mapping programmes or contacting local sources can provide more accurate information on the church's precise location inside the municipality. It is recommended that you confirm any specifics with local authorities or people for the most up-to-date and precise information, as geographical details can change over time.
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
@@ -33,110 +40,384 @@ Msgr. On April 4, 1999, the Vicar General of Caceres, Jose R. Rojas, blessed the
 
 Parish Priest and Parochial Vicar appointed to Our Lady of La Porteria Parish in Calabanga
 
-1749 july 15- Fray Jose de Bastida
-1776          	- Fray fran Alba
-1778          	- Fr. Alnes de Feanzo
-1781          	- Fr. Juan de Albalate
-                    	-Fr.Geronimo del Cuballo
-                    	-Fr.Geronimodel Talavera
-1782          	- Fray Josef de Morata
-                    	- fr. Juan de los Dolores
-1783          	- Fray  Josef de Morata
-                    	- Fr. Antonio Selles
-1787          	- Fr. Basme Pecaze
-1789          	- Fr. Juan De los Hayos
-1793          	- Fr. Josef De Morata
-1794          	- Fr. Josef Fuen sa Nida
-1795          	- Fr. Manuel de Belis
-                    	- Fr. Juan del Espiritu
-                    	- Fray juan del Cadahalso
-                    	- Fr. Manuel del Campo
-1797                   	-Fray Antonio dela Sta.Trinidad
-                    	- Fr. Salvador de los Santos
-1798          	- Fray juan de Albalare
-1799          	- Fr. Mariano Guarch
-1800          	- Fr. Juan del Espiritu
-1804          	- Fr. Juan  Enciso
-                    	- Fr. Mariano Sanchez
-                    	- Fr. Diego Solis
-1805          	- Fr. Jose de Morata
-1807          	- Fr. Josef morata
-1814          	- Fr. Juan Capistrano
-1816          	- Fr. Amonio Virence
-                                               
-14
-1817    - Fr. Juan Navarro
-            - Fr. Antonio Villar
-1822    - Fr. Camilo Fordellego
-            -Fr. Camilo Barrios
-1827    - Fr. Bonifacio Esterez
-1828    - Fr. Diego Solis
-1830    - Presbito Victorino delos Santos
-1833    - Fr. Bonifacio Estevez
-1834     - Pedro dela Cruz
-             - Fray Francisco Baydal
-1862     -Fr. Romualdo Madridejos
-1864     - Fray jose de Lillo OFM
-1866     - Fr. Felipe Saavedra
-1867     - Fr. Luis Garcia
-             - Fr. Esteban Oquelda
-             - Fr. Serafin Herras
-1869     - Fr. Tomas Antonio
-1870     - Fr. Jacinto Franco
-1879     - Fr. Rafael Gascon
-1890     - Fr. Damaso Galvo
-1897     - Fr. Sabino Muñuz
-1899     - Fr. Praxidio Peñoro
-1906     - Fr. Manuel Crisol
-1913     - Fr. Victorino  Peña
-1916     - Fr. D.F Solcurio
-1917     - Fr. Florenio  Cariño
-1921     - Fr. Sergio Villareal
-1927     - Fr. Anselmo Borela
-1930     -Fr.Feliciano Puertollano
-1940     - Fr. Eleno Prieto
-1956     - Fr. Ciriaco San Diego – Parish Priest
-1964     - Fr. Manuel Concepcion – Parish Priest
-1967     - Fr. Rosalio Olaybal – Parish Priest
-1967     - Fr. Gerardo Espidido – Parish Priest
-1970     - Fr. Julieto Marco  -   Parish Priest
-1972     - Fr. Francisco Imperial -  Parish Priest
-1976     - Fr. Felix O. Pasadilla  -  Parish Priest
-1979     - Fr. Benjamin Reblando  - Parish Priest
-1981     -Fr. Wenceslao San Andres – Parochial Vicar
-1981     - Fr. Roman Modino – Parish Priest
-1987	  - Fr. Leon Fajardo – Parochial Vicar
- 
-1987   - Fr. Lorenzo Delos Santos – Parish Priest
-1989   - Fr. Rico Eclar    - Parochial Vicar
-1990   - Fr. Beda Martirez -  Parochial Vicar
-1991   - Fr. Alfonso Grageda -  Parish Priest
-1992   - Fr. Jose Rey Rellora – Parochial Vicar
-1993   -Fr.Felix Martin Penetrante – Parochial Vicar
-1995   - Fr. Leopoldo Zara  -  Parochial Vicar
-1997 April - Fr. Raul Pan -   Parish Priest
-1997   - Fr. Jeudiel Galvo – Parochial Vicar
-1999   - Fr. Joker Bayta  -	Parochial Vicar
-2002   - Fr. Michael Marzan -  Parochial Vicar
-2002   - Fr. Rafael Britanico -  Parish Priest
-2003   - Fr. Juancho Abelligos- Parochial Vicar
-2004   - Fr. Danilo F. Tuason -  Parish Priest
-2004   - Fr. William Guerrero – Parochial Vicar
-2005   - Fr. Demosthenes Olaso – Parochial Vicar
-2006   - Fr. Antonio P. Delos Santos – Parish Priest
-2007   - Fr. Edmundo Siguenza – Parochial Vicar
-2008   - Fr. AugustoM. Federico, Jr.– Parochial Vicar
-2010   - Fr. Paul S. Labordo -  Parochial Vicar
-2011   - Fr. Abenson Martinez – Parochial Vicar
-2012  - Msgr. Raul S. Pan  -  Parochial Vicar
-2012  - Fr. Danilo V. Arnante – Parish Priest
-2013 -  Fr. Denver B. Tino  - Parochial Vicar
-2014 -  Fr.Jessie S.Edaugal – Parochial Vicar
-2014 -  Msgr. Jesus J. Picar – Guest Priest
-2015 -  Fr. Ralph Christian D. Golina – Parochial Vicar
-2016 -  Fr. Armand Christian M. Ortinero – Parochial Vicar
-2017 -  Fr. Philip Francis R. Bersabe – Attach
 
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Fr. Camilo Fordellego
+      Fr. Camilo Barrios
+      (1822)
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Bonifacio Esterez (1827) 
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Fr. Diego Solis (1828)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--     Presbito Victorino delos Santos (1830)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Bonifacio Estevez (1833) 
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Pedro dela Cruz
+     Fray Francisco Baydal
+     (1834)    
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Romualdo Madridejos (1962)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fray jose de Lillo OFM (1864)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Felipe Saavedra (1866)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Luis Garcia
+     Fr. Esteban Oquelda
+     Fr. Serafin Herras
+     (1867)
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Tomas Antonio (1869)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Jacinto Franco (1870)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Rafael Gascon (1879)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Damaso Galvo (1890)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Sabino Muñuz (1897)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Praxidio Peñoro (1899)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Manuel Crisol (1906)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Victorino  Peña (1913)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   1916     - Fr. D.F Solcurio
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Florenio  Cariño (1917)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Sergio Villareal (1921)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Anselmo Borela (1927)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr.Feliciano Puertollano (1930)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Eleno Prieto (1940)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Ciriaco San Diego – Parish Priest (1956)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Manuel Concepcion – Parish Priest (1964)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Rosalio Olaybal – Parish Priest (1967)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Gerardo Espidido – Parish Priest (1967)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Julieto Marco - Parish Priest (1970)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Francisco Imperial -  Parish Priest (1972)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Felix O. Pasadilla  -  Parish Priest (1976)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Benjamin Reblando  - Parish Priest (1979)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Wenceslao San Andres – Parochial Vicar
+--   Fr. Roman Modino – Parish Priest
+     (1981) 
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Leon Fajardo – Parochial Vicar
+--   Fr. Lorenzo Delos Santos – Parish Priest
+     (1987) 
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Rico Eclar - Parochial Vicar (1989)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Beda Martirez -  Parochial Vicar (1990)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Alfonso Grageda -  Parish Priest (1991)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Jose Rey Rellora – Parochial Vicar (1992)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr.Felix Martin Penetrante – Parochial Vicar (1993)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Leopoldo Zara  -  Parochial Vicar (1995)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Raul Pan -   Parish Priest
+--   Fr. Jeudiel Galvo – Parochial Vicar (1997)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--  Fr. Joker Bayta  -	Parochial Vicar (1998)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Fr. Michael Marzan -  Parochial Vicar
+      Fr. Rafael Britanico -  Parish Priest
+      (2002)
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Juancho Abelligos- Parochial Vicar (2003) 
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Danilo F. Tuason -  Parish Priest (2004) 
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. William Guerrero – Parochial Vicar( 2004) 
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Demosthenes Olaso – Parochial Vicar (2005) 
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Antonio P. Delos Santos – Parish Priest (2006) 
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Edmundo Siguenza – Parochial Vicar (2007) 
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. AugustoM. Federico, Jr.– Parochial Vicar (2008) 
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Paul S. Labordo -  Parochial Vicar (2010)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Abenson Martinez – Parochial Vicar (2011)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--     Msgr. Raul S. Pan  -  Parochial Vicar (2012)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Danilo V. Arnante – Parish Priest (2012)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--   Fr. Denver B. Tino  - Parochial Vicar (2013)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Fr.Jessie S.Edaugal – Parochial Vicar (2014)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Msgr. Jesus J. Picar – Guest Priest (2014)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Fr. Ralph Christian D. Golina – Parochial Vicar (2015)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Fr. Armand Christian M. Ortinero – Parochial Vicar (2016)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Fr. Philip Francis R. Bersabe – Attach (2017)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Fr Romy Donacao (2023)
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+--    Fr Briguera behave primo (2024)
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
@@ -211,10 +492,42 @@ Sunday
 &nbsp; &nbsp; &nbsp; &nbsp;
 
 
+## Calendar of activities:
+
+Kafiestahan ni Sto. Nino 2024 - Sunday, Jan. 21, 2024
+
+
 &nbsp; &nbsp; &nbsp; &nbsp;
 
 
-Contacts:
+Santo Nino Triduo Panalagin para sa Kapistahan ng Santo Nino - Jan. 18
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+𝐓𝐇𝐄 4𝐓𝐇 𝐒𝐓𝐎. 𝐍𝐈𝐍𝐎 𝐂𝐇𝐈𝐋𝐃𝐑𝐄𝐍'𝐒 𝐂𝐎𝐍𝐆𝐑𝐄𝐒𝐒 & 𝐅𝐄𝐒𝐓𝐈𝐕𝐀𝐋
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+January 20, 2024 | Dominican School of Calabanga
+𝐈𝐋𝐔𝐖𝐀𝐒 𝐆𝐀𝐁𝐎𝐒 𝐀𝐍 𝐒𝐓𝐎. 𝐍𝐈Ñ𝐎 𝐒𝐀 𝐒𝐀𝐓𝐔𝐘𝐀𝐍𝐆 𝐌𝐆𝐀 𝐇𝐀𝐑𝐎𝐍𝐆... 𝐕𝐈𝐕𝐀 𝐏𝐈𝐓 𝐒𝐄Ñ𝐎𝐑!
+Makisumaro po kita sa Kafiestahan ni 𝐒𝐓𝐎. 𝐍𝐈Ñ𝐎 sa satuyang parokya!
+Mass Schedule
+5:00 AM, 7:30 AM, 10:00 AM, 4:30 PM, 6:00 PM
+8:30 AM - Coronation of Little Sto. Niño 2024
+1:00 PM - Assembly of all Carozza, Padjak, all kind of vehicles with the images of Sto. Niño
+2:00 PM - Blessing of devotees and Start of Procession with
+Sinulog Devotional Street Dance by Parish Youth Ministry
+VIVA PIT SEÑOR!
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+My contacts:
 
 
 **0961 732 7004**
@@ -223,3 +536,5 @@ Contacts:
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
+
+
