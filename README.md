@@ -451,10 +451,9 @@ Assistant/Associate Priests: Larger parishes may have additional priests who ass
 
 
 **Ministry Groups:**
-
 *Liturgical Ministries: Include roles such as lectors, altar servers, choir members, and Eucharistic ministers involved in the celebration of Mass.*
 
-**Social Justice Ministries**
+**Social Justice Ministries:**
 *Focused on community outreach, charitable activities, and social justice issues.*
 
 **Youth Ministries:**
@@ -468,16 +467,16 @@ Women's Guild or Council:**
 
 **Men's Fellowship:** 
 *Similar to women's groups, these organizations provide support and fellowship among male parishioners.
-Educational Institutions:*
+Educational Institutions*
 
 **Parochial Schools: Some parishes have affiliated schools that provide education in accordance with the teachings of the church.
 Support Groups:**
 
-*Prayer Groups: Small groups of parishioners who gather for prayer, reflection, and spiritual support.
+**Prayer Groups:** 
+*Small groups of parishioners who gather for prayer, reflection, and spiritual support.
 Bereavement Support: Offers assistance and comfort to those who have lost loved ones.*
 
 **Community Events and Activities:**
-
 *Festivals, Fairs, and Social Events: Organized by the parish or various groups within the parish to foster community spirit and raise funds.*
 
 
