@@ -421,6 +421,98 @@ In 1667, the first stone church was built. However, in 1811, an earthquake destr
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
+## Organizations in my Parish: 
+
+**Clergy:**
+
+**Pastor/Priest-**
+
+*At the top of the parish hierarchy is the pastor or priest. This individual is responsible for the spiritual guidance of the parish and oversees its day-to-day operations.
+Assistant/Associate Priests: Larger parishes may have additional priests who assist the pastor in various duties.*
+
+
+**Parish Staff:**
+
+**Administrative Staff-**
+
+*Individuals responsible for managing the day-to-day administrative tasks of the parish, including secretaries, receptionists, and finance managers.*
+
+**Religious Education Directors-** 
+
+*Oversee religious education programs for children, youth, and adults within the parish.*
+
+**Pastoral Council-** 
+
+*Composed of selected parishioners, the pastoral council advises the pastor on spiritual matters and helps shape the overall direction of the parish.*
+
+**Finance Council-** 
+
+*Responsible for overseeing the financial aspects of the parish, including budgeting and fundraising.*
+
+
+**Ministry Groups:**
+
+*Liturgical Ministries: Include roles such as lectors, altar servers, choir members, and Eucharistic ministers involved in the celebration of Mass.*
+
+**Social Justice Ministries**
+*Focused on community outreach, charitable activities, and social justice issues.*
+
+**Youth Ministries:**
+*Aimed at engaging and nurturing the faith of young parishioners through events, retreats, and educational programs.*
+
+**Auxiliary Organizations:**
+
+**Knights of Columbus (or similar organizations): Fraternal organizations that often work closely with the parish, focusing on charity, unity, and fraternity.
+Women's Guild or Council:**
+*Groups of women who may engage in charitable work, fundraising, and community building.*
+
+**Men's Fellowship:** 
+*Similar to women's groups, these organizations provide support and fellowship among male parishioners.
+Educational Institutions:*
+
+**Parochial Schools: Some parishes have affiliated schools that provide education in accordance with the teachings of the church.
+Support Groups:**
+
+*Prayer Groups: Small groups of parishioners who gather for prayer, reflection, and spiritual support.
+Bereavement Support: Offers assistance and comfort to those who have lost loved ones.*
+
+**Community Events and Activities:**
+
+*Festivals, Fairs, and Social Events: Organized by the parish or various groups within the parish to foster community spirit and raise funds.*
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+## Social Hierarchy:
+
+Clergy/Pastoral Leadership:
+Pastor/Minister/Reverend: The primary spiritual leader of the parish responsible for the overall direction of the church and its congregation.
+Assistant Pastors/Associate Ministers: Supportive clergy members who assist the main pastor in various responsibilities.
+Parish Council/Leadership Team:
+
+Parish Council Members: Lay leaders who work with the clergy to oversee the administrative and financial aspects of the parish.
+Committee Leaders: Individuals leading specific committees such as finance, outreach, education, or worship.
+
+Church Staff:
+Administrative Staff: Those responsible for day-to-day operations, such as secretaries, administrative assistants, and financial managers.
+Musicians and Choir Directors: Individuals overseeing the musical aspects of worship services.
+Youth Leaders and Educators: Responsible for the spiritual education and development of youth within the parish.
+
+Congregation:
+Regular Members: The bulk of the parish community attending worship services and participating in various church activities.
+Volunteers: Those who actively contribute their time and skills to support the functioning of the parish.
+
+Outreach and Ministry Teams:
+Mission and Outreach Teams: Engage in community service and outreach efforts.
+Ministry Leaders: Oversee specific ministries within the parish, such as women's ministry, men's ministry, or small groups.
+
+Newcomers and Visitors:
+Individuals who are new to the parish or attending for the first time.
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
 
 ## Our Lady of La Porteria Parish, Calabanga, Camarines Sur; MASS SCHEDULE:
 
@@ -467,8 +559,6 @@ Sunday
 &nbsp; &nbsp; &nbsp; &nbsp;
 
 
-![404707434_311774841824054_9021620594454969354_n](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/009eccf8-9042-4dee-bf69-e4ba4c235af7)
-![405008836_1717225498786353_5881968039720414030_n](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/32500bd3-afa8-4038-afdf-61d61dc8996d)
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
@@ -500,9 +590,18 @@ VIVA PIT SEÑOR!
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
+## Personal photos of parish:
+![404707434_311774841824054_9021620594454969354_n](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/8fc53b5c-47b6-47de-867c-f61228c036eb)
+![405008836_1717225498786353_5881968039720414030_n](https://github.com/outmoded1PonGee0/outmoded1PonGee0.github.io/assets/150323782/147b3278-9660-4a69-b85c-82a8bb3f4d66)
+
+
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+### Contact
 
 My contacts:
-
 
 **0961 732 7004**
 
@@ -514,8 +613,6 @@ My contacts:
 
 Parish Contacts:
 
-
 **0927 410 0286**
-
 
 *inangmarialaporteria@gmail.com*
