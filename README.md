@@ -44,380 +44,74 @@ In 1667, the first stone church was built. However, in 1811, an earthquake destr
 &nbsp; &nbsp; &nbsp; &nbsp;
 
 
---    Fr. Camilo Fordellego
-      Fr. Camilo Barrios
-      (1822)
+| Parish Priests and Parochial Vicars  | Years of being in service |
+| --- | ----------- |
+| Fr Briguera behave primo | 2024 |
+| Fr Romy Donacao  | 2023 |
+| Fr. Philip Francis R. Bersabe– Attach | 2017 |
+| Fr. Armand Christian M. Ortinero– Parochial Vicar | 2016 |
+| Fr. Ralph Christian D. Golina– Parochial Vicar  | 2015 |
+| Msgr. Jesus J. Picar– Guest Priest | 2014 |
+| Fr.Jessie S.Edaugal– Parochial Vicar () | 2014 |
+| Fr. Denver B. Tino- Parochial Vicar () | 2013 |
+| Fr. Danilo V. Arnante– Parish Priest () | 2012 |
+| Msgr. Raul S. Pan-  Parochial Vicar () | 2012 |
+| Fr. Abenson Martinez– Parochial Vicar () | 2011 |
+| Fr. Paul S. Labordo-  Parochial Vicar () | 2010 |
+| Fr. AugustoM. Federico, Jr.– Parochial Vicar () | 2008 |
+| Fr. Edmundo Siguenza– Parochial Vicar ()  | 2007 |
+| Fr. Antonio P. Delos Santos– Parish Priest () | 2006 |
+| Fr. Demosthenes Olaso– Parochial Vicar () | 2005 |
+| Fr. Danilo F. Tuason-  Parish Priest () , Fr. William Guerrero – Parochial Vicar | 2004 |
+| Fr. Juancho Abelligos- Parochial Vicar ()  | 2003 |
+| Fr. Rafael Britanico-  Parish Priest () | 2002 |
+| Fr. Michael Marzan-  Parochial Vicar | 1999 |
+| Fr. Joker Bayta -	Parochial Vicar () | 1998 |
+| Fr. Jeudiel Galvo– Parochial Vicar () | 1997 |
+| Fr. Raul Pan-   Parish Priest | 1996 |
+| Fr. Leopoldo Zara-  Parochial Vicar () | 1995 |
+| Fr.Felix Martin Penetrante– Parochial Vicar () | 1993 |
+| Fr. Jose Rey Rellora– Parochial Vicar () | 1992 |
+| Fr. Alfonso Grageda-  Parish Priest () | 1991 |
+| Fr. Beda Martirez-  Parochial Vicar () | 1990 |
+| Fr. Rico Eclaz- Parochial Vicar () | 1989 |
+| Fr. Lorenzo Delos Santos– Parish Priest ()  | 1987 |
+| Fr. Leon Fajardo– Parochial Vicar | 1982 |
+| Fr. Roman Modino– Parish Priest ()  | 1981 |
+| Fr. Wenceslao San Andres– Parochial Vicar | 1980 |
+| Fr. Benjamin Reblando- Parish Priest () | 1979 |
+| Fr. Felix O. Pasadilla-  Parish Priest () | 1976 |
+| Fr. Francisco Imperia-  Parish Priest () | 1972 |
+| Fr. Julieto Marco- Parish Priest () | 1970 |
+| Fr. Gerardo Espidido– Parish Priest () | 1968 |
+| Fr. Rosalio Olaybal– Parish Priest () | 1967 |
+| Fr. Manuel Concepcion– Parish Priest () | 1964 |
+| Fr. Ciriaco San Diego– Parish Priest () | 1956 |
+| Fr. Eleno Prieto () | 1940 |
+| Fr.Feliciano Puertollano () | 1930 |
+| Fr. Anselmo Borela () | 1927 |
+| Fr. Sergio Villareal () | 1921 |
+| Fr. Florenio  Cariño () | 1917 |
+| Fr. D.F Solcurio () | 1916 |
+| Fr. Victorino  Peña () | 1913 |
+| Fr. Manuel Crisol () | 1906 |
+| Fr. Praxidio Peñoro () | 1899 |
+| Fr. Sabino Muñuz () | 1897 |
+| Fr. Damaso Galvo () | 1890 |
+| Fr. Rafael Gascon () | 1879 |
+| Fr. Jacinto Franco () | 1870 |
+| Fr. Tomas Antonio () | 1869 |
+| Fr. Luis Garcia, Fr. Esteban Oquelda, Fr. Serafin Herras | 1867 |
+| Fr. Felipe Saavedra  | 1866 |
+| Fray jose de Lillo OFM | 1864 |
+| Fr. Romualdo Madridejos | 1962 |
+| Pedro dela Cruz, Fray Francisco Baydal | 1834 |
+| Fr. Bonifacio Estevez  | 1833 |
+| Presbito Victorino delos Santos  | 1830 |
+|  Fr. Diego Solis | 1828 |
+| Fr. Bonifacio Esterez  | 1827 |
+| Fr. Camilo Fordellego, Fr. Camilo Barrios | 1826 |
 
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Bonifacio Esterez (1827) 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---    Fr. Diego Solis (1828)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---     Presbito Victorino delos Santos (1830)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Bonifacio Estevez (1833) 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Pedro dela Cruz
-     Fray Francisco Baydal
-     (1834)    
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Romualdo Madridejos (1962)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fray jose de Lillo OFM (1864)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Felipe Saavedra (1866)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Luis Garcia
-     Fr. Esteban Oquelda
-     Fr. Serafin Herras
-     (1867)
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Tomas Antonio (1869)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Jacinto Franco (1870)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Rafael Gascon (1879)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Damaso Galvo (1890)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Sabino Muñuz (1897)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Praxidio Peñoro (1899)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Manuel Crisol (1906)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Victorino  Peña (1913)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   1916     - Fr. D.F Solcurio
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Florenio  Cariño (1917)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Sergio Villareal (1921)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Anselmo Borela (1927)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr.Feliciano Puertollano (1930)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Eleno Prieto (1940)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Ciriaco San Diego – Parish Priest (1956)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Manuel Concepcion – Parish Priest (1964)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Rosalio Olaybal – Parish Priest (1967)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Gerardo Espidido – Parish Priest (1967)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Julieto Marco - Parish Priest (1970)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Francisco Imperial -  Parish Priest (1972)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Felix O. Pasadilla  -  Parish Priest (1976)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Benjamin Reblando  - Parish Priest (1979)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Wenceslao San Andres – Parochial Vicar
---   Fr. Roman Modino – Parish Priest
-     (1981) 
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Leon Fajardo – Parochial Vicar
---   Fr. Lorenzo Delos Santos – Parish Priest
-     (1987) 
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Rico Eclar - Parochial Vicar (1989)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Beda Martirez -  Parochial Vicar (1990)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Alfonso Grageda -  Parish Priest (1991)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Jose Rey Rellora – Parochial Vicar (1992)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr.Felix Martin Penetrante – Parochial Vicar (1993)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Leopoldo Zara  -  Parochial Vicar (1995)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Raul Pan -   Parish Priest
---   Fr. Jeudiel Galvo – Parochial Vicar (1997)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---  Fr. Joker Bayta  -	Parochial Vicar (1998)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---    Fr. Michael Marzan -  Parochial Vicar
-      Fr. Rafael Britanico -  Parish Priest
-      (2002)
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Juancho Abelligos- Parochial Vicar (2003) 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Danilo F. Tuason -  Parish Priest (2004) 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. William Guerrero – Parochial Vicar( 2004) 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Demosthenes Olaso – Parochial Vicar (2005) 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Antonio P. Delos Santos – Parish Priest (2006) 
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Edmundo Siguenza – Parochial Vicar (2007) 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. AugustoM. Federico, Jr.– Parochial Vicar (2008) 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Paul S. Labordo -  Parochial Vicar (2010)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Abenson Martinez – Parochial Vicar (2011)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---     Msgr. Raul S. Pan  -  Parochial Vicar (2012)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Danilo V. Arnante – Parish Priest (2012)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---   Fr. Denver B. Tino  - Parochial Vicar (2013)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---    Fr.Jessie S.Edaugal – Parochial Vicar (2014)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---    Msgr. Jesus J. Picar – Guest Priest (2014)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---    Fr. Ralph Christian D. Golina – Parochial Vicar (2015)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---    Fr. Armand Christian M. Ortinero – Parochial Vicar (2016)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---    Fr. Philip Francis R. Bersabe – Attach (2017)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---    Fr Romy Donacao (2023)
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
---    Fr Briguera behave primo (2024)
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
@@ -517,29 +211,17 @@ Ministry Leaders: Oversee specific ministries within the parish, such as women's
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
-Monday to Friday:
-6:00am (English)
 
-&nbsp; &nbsp; &nbsp; &nbsp;
-Monday - None
 
-&nbsp; &nbsp; &nbsp; &nbsp;
-Tuesday- None
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-Wednesday- 6:00 PM (Bicol)
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-Thursday- 6:00 PM (Bicol)
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-Friday- 6:00 PM (Bicol)
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-Saturday- 7:00 AM (Bicol)
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-Sunday- 6:00 AM (Bicol), 8:00 AM (Bicol), 10:00 AM (Englsih), 5:00 PM (Bicol)
+| **Monday to Sunday** | **Time and language** |
+| --- | ----------- |
+| **Monday** | *None* |
+| **Tuesday** | *None* |
+| **Wednesday** | *6:00 P.M. (Bicol)* |
+| **Thrusday** | *6:00 P.M. (Bicol)* |
+| **Friday** | *6:00 P.M. (Bicol)* |
+| **Saturday** | *7:00 A.M. (Bicol)* |
+| **Sunday** | *6:00 A.M. (Bicol), 8:00 A.M. (Bicol), 10:00 A.M. (Englsih), 5:00 P.M. (Bicol)* |
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
