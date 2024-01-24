@@ -485,29 +485,29 @@ Bereavement Support: Offers assistance and comfort to those who have lost loved 
 
 ## Social Hierarchy:
 
-Clergy/Pastoral Leadership:
-Pastor/Minister/Reverend: The primary spiritual leader of the parish responsible for the overall direction of the church and its congregation.
-Assistant Pastors/Associate Ministers: Supportive clergy members who assist the main pastor in various responsibilities.
-Parish Council/Leadership Team:
+**Clergy/Pastoral Leadership:**
+*Pastor/Minister/Reverend: The primary spiritual leader of the parish responsible for the overall direction of the church and its congregation.
+Assistant Pastors/Associate Ministers: Supportive clergy members who assist the main pastor in various responsibilities.*
 
-Parish Council Members: Lay leaders who work with the clergy to oversee the administrative and financial aspects of the parish.
-Committee Leaders: Individuals leading specific committees such as finance, outreach, education, or worship.
+**Parish Council/Leadership Team:**
+*Parish Council Members: Lay leaders who work with the clergy to oversee the administrative and financial aspects of the parish.
+Committee Leaders: Individuals leading specific committees such as finance, outreach, education, or worship.*
 
-Church Staff:
-Administrative Staff: Those responsible for day-to-day operations, such as secretaries, administrative assistants, and financial managers.
+**Church Staff:**
+*Administrative Staff: Those responsible for day-to-day operations, such as secretaries, administrative assistants, and financial managers.
 Musicians and Choir Directors: Individuals overseeing the musical aspects of worship services.
-Youth Leaders and Educators: Responsible for the spiritual education and development of youth within the parish.
+Youth Leaders and Educators: Responsible for the spiritual education and development of youth within the parish.*
 
-Congregation:
-Regular Members: The bulk of the parish community attending worship services and participating in various church activities.
-Volunteers: Those who actively contribute their time and skills to support the functioning of the parish.
+**Congregation:**
+*Regular Members: The bulk of the parish community attending worship services and participating in various church activities.
+Volunteers: Those who actively contribute their time and skills to support the functioning of the parish.*
 
-Outreach and Ministry Teams:
-Mission and Outreach Teams: Engage in community service and outreach efforts.
-Ministry Leaders: Oversee specific ministries within the parish, such as women's ministry, men's ministry, or small groups.
+**Outreach and Ministry Teams:**
+*Mission and Outreach Teams: Engage in community service and outreach efforts.
+Ministry Leaders: Oversee specific ministries within the parish, such as women's ministry, men's ministry, or small groups.*
 
-Newcomers and Visitors:
-Individuals who are new to the parish or attending for the first time.
+**Newcomers and Visitors:**
+*Individuals who are new to the parish or attending for the first time.*
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
@@ -517,47 +517,29 @@ Individuals who are new to the parish or attending for the first time.
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
-Monday to Friday
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-6:00 A.M.
+Monday to Friday:
+6:00am (English)
 
 &nbsp; &nbsp; &nbsp; &nbsp;
-Saturday
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-5:30 P.M.- Bicol (Anticipated)
+Monday - None
 
 &nbsp; &nbsp; &nbsp; &nbsp;
-Sunday
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-5:00 A.M. - Bicol
-
+Tuesday- None
 
 &nbsp; &nbsp; &nbsp; &nbsp;
-7:00 A.M. - Bicol
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-9:30 A.M. - Baptism
-
+Wednesday- 6:00 PM (Bicol)
 
 &nbsp; &nbsp; &nbsp; &nbsp;
-10:00 A.M. - English
-
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-4:30 P.M. - Bicol
-
+Thursday- 6:00 PM (Bicol)
 
 &nbsp; &nbsp; &nbsp; &nbsp;
-6:00 P.M. - English
-
+Friday- 6:00 PM (Bicol)
 
 &nbsp; &nbsp; &nbsp; &nbsp;
+Saturday- 7:00 AM (Bicol)
 
-
+&nbsp; &nbsp; &nbsp; &nbsp;
+Sunday- 6:00 AM (Bicol), 8:00 AM (Bicol), 10:00 AM (Englsih), 5:00 PM (Bicol)
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
