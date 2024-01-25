@@ -69,10 +69,10 @@ In 1667, the first stone church was built. However, in 1811, an earthquake destr
 | Fr. Joker Bayta-	Parochial Vicar  | 1998 |
 | Fr. Jeudiel Galvo– Parochial Vicar  | 1997 |
 | Fr. Raul Pan- Parish Priest | 1996 |
-| Fr. Leopoldo Zara-  Parochial Vicar () | 1995 |
-| Fr.Felix Martin Penetrante– Parochial Vicar () | 1993 |
-| Fr. Jose Rey Rellora– Parochial Vicar () | 1992 |
-| Fr. Alfonso Grageda-  Parish Priest () | 1991 |
+| Fr. Leopoldo Zara-  Parochial Vicar  | 1995 |
+| Fr.Felix Martin Penetrante– Parochial Vicar  | 1993 |
+| Fr. Jose Rey Rellora– Parochial Vicar  | 1992 |
+| Fr. Alfonso Grageda-  Parish Priest  | 1991 |
 | Fr. Beda Martirez- Parochial Vicar  | 1990 |
 | Fr. Rico Eclaz- Parochial Vicar  | 1989 |
 | Fr. Lorenzo Delos Santos– Parish Priest  | 1987 |
