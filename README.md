@@ -8,9 +8,9 @@
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
---   Calabanga was one of Quipayo's visitas when it was established as a parish in 1578. It had authority over the parishes of Libmanan, Bombon, Siruma, and Calabanga. Bombon was established in 1804 and came to Magarao in 1908.
+--   Calabanga was one of Quipayo's visits when it was established as a parish in 1578. It had authority over the parishes of Libmanan, Bombon, Siruma, and Calabanga. Bombon was established in 1804 and came to Magarao in 1908.
 
-Calabanga separated from Quipayo as a consequence of a petition submitted by a group of Calabangueos for the aim of constructing another Church that, along with a Padre Ministro, would care for the people's needs. The petitioners also hoped that by separating the Visitas of Pagatpat and Inarihan, they would be administered more carefully because they were so close to each other. It had two visits, Visita de Cagapad which is in Pagatpat and Visita de Hinarijan, as well as 12 barrios: San Antonio, San Vicente, Santa Catalina, and Nstra. San Lucas, San Miguel, Sta. Isabel, Nstra. del Carmen, San Roque, San Pablo, San Jose now Balongay, and Belen.
+Calabanga separated from Quipayo as a consequence of a petition submitted by a group of Calabangueos with the aim of constructing another Church that, along with a Padre Ministro, would care for the people's needs. The petitioners also hoped that by separating the Visitas of Pagatpat and Inarihan, they would be administered more carefully because they were so close to each other. It had two visits, Visita de Cagapad which is in Pagatpat, and Visita de Hinarijan, as well as 12 barrios: San Antonio, San Vicente, Santa Catalina, and Nstra. San Lucas, San Miguel, Sta. Isabel, Nostra. del Carmen, San Roque, San Pablo, San Jose now Balongay, and Belen.
 
 --    On April 28, 1749, the petition was submitted. On July 15, 1749, the petition was granted by Don Fray Juan de Arecherra, Bishop elect of Nueva Segovia of the Commissary of the King, along with the establishment of the Municipality of Calabanga. The first Parish Priest was Fray Jose de la Bastida, O.F.M. At the moment, the Parish has 15 Barangays with the establishment of new Parishes: the Divine Mercy Parish in Paolbo, Calabanga founded on June 30, 2003 - celebrating their feast on the 2nd Sunday of Easter and St. Faustina Kowalska is the Secondary Patron; the Black Nazarene Parish in Binanuanan Pequeo, Calabanga founded on August 29, 2009, celebrating their feast on January 9 and Nuestra Seora de la Paz Domingo, Calabanga was formed on October 18, 2009, with St. Dominic of Guzman as its Secondary Patron and was launched by The Archbishop of Caceres, His Excellency Most Reverend Leonardo Z. Legaspi. The Parish fiesta is now held on September 8, the feast of the Nativity of the Blessed Virgin Mary.
 
@@ -23,7 +23,7 @@ In 1667, the first stone church was built. However, in 1811, an earthquake destr
 <iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d1293.5184607009692!2d123.21531618432344!3d13.707798043196851!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x33a1f1805135b981%3A0x8c2ad851f53981a8!2sOur%20Lady%20of%20La%20Porteria%20Parish!5e0!3m2!1sen!2sus!4v1704728072986!5m2!1sen!2sus" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
 
 
---The Parroquia de Nuestra Señora de la Porteria is located in Calabanga, a municipality in the province of Camarines Sur, Philippines. Calabanga is part of the Bicol Region, which is located in the southeast of Luzon, the Philippines' main island. Camarines Sur, a province in the centre of the Bicol Region, is home to a variety of villages, including the town of Calabanga. 
+--The Parroquia de Nuestra Señora de la Porteria is located in Calabanga, a municipality in the province of Camarines Sur, Philippines. Calabanga is part of the Bicol Region, which is located in the southeast of Luzon, the Philippines' main island. Camarines Sur, a province in the center of the Bicol Region, is home to a variety of villages, including the town of Calabanga. 
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
@@ -32,7 +32,7 @@ In 1667, the first stone church was built. However, in 1811, an earthquake destr
 <iframe src="https://www.google.com/maps/embed?pb=!4v1705388118659!6m8!1m7!1sa0klXH-tu7Dz5M6dU4Kbyg!2m2!1d13.7079826126808!2d123.2150585615726!3f107.27430233511757!4f-0.24341063560639498!5f0.7820865974627469" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
 
 
---To locate the Parroquia de Nuestra Señora de la Porteria in Calabanga, use particular address data or coordinates. Using internet mapping programmes or contacting local sources can provide more accurate information on the church's precise location inside the municipality. It is recommended that you confirm any specifics with local authorities or people for the most up-to-date and precise information, as geographical details can change over time.
+--To locate the Parroquia de Nuestra Señora de la Porteria in Calabanga, use particular address data or coordinates. Using internet mapping programs or contacting local sources can provide more accurate information on the church's precise location inside the municipality. It is recommended that you confirm any specifics with local authorities or people for the most up-to-date and precise information, as geographical details can change over time.
 
 
 &nbsp; &nbsp; &nbsp; &nbsp;
@@ -52,55 +52,55 @@ In 1667, the first stone church was built. However, in 1811, an earthquake destr
 | Fr. Armand Christian M. Ortinero– Parochial Vicar | 2016 |
 | Fr. Ralph Christian D. Golina– Parochial Vicar  | 2015 |
 | Msgr. Jesus J. Picar– Guest Priest | 2014 |
-| Fr.Jessie S.Edaugal– Parochial Vicar () | 2014 |
-| Fr. Denver B. Tino- Parochial Vicar () | 2013 |
-| Fr. Danilo V. Arnante– Parish Priest () | 2012 |
-| Msgr. Raul S. Pan-  Parochial Vicar () | 2012 |
-| Fr. Abenson Martinez– Parochial Vicar () | 2011 |
-| Fr. Paul S. Labordo-  Parochial Vicar () | 2010 |
-| Fr. AugustoM. Federico, Jr.– Parochial Vicar () | 2008 |
-| Fr. Edmundo Siguenza– Parochial Vicar ()  | 2007 |
-| Fr. Antonio P. Delos Santos– Parish Priest () | 2006 |
-| Fr. Demosthenes Olaso– Parochial Vicar () | 2005 |
-| Fr. Danilo F. Tuason-  Parish Priest () , Fr. William Guerrero – Parochial Vicar | 2004 |
-| Fr. Juancho Abelligos- Parochial Vicar ()  | 2003 |
-| Fr. Rafael Britanico-  Parish Priest () | 2002 |
+| Fr.Jessie S.Edaugal– Parochial Vicar  | 2014 |
+| Fr. Denver B. Tino- Parochial Vicar | 2013 |
+| Fr. Danilo V. Arnante– Parish Priest  | 2012 |
+| Msgr. Raul S. Pan-  Parochial Vicar  | 2012 |
+| Fr. Abenson Martinez– Parochial Vicar  | 2011 |
+| Fr. Paul S. Labordo-  Parochial Vicar  | 2010 |
+| Fr. AugustoM. Federico, Jr.– Parochial Vicar  | 2008 |
+| Fr. Edmundo Siguenza– Parochial Vicar   | 2007 |
+| Fr. Antonio P. Delos Santos– Parish Priest  | 2006 |
+| Fr. Demosthenes Olaso– Parochial Vicar  | 2005 |
+| Fr. Danilo F. Tuason-  Parish Priest, Fr. William Guerrero – Parochial Vicar | 2004 |
+| Fr. Juancho Abelligos- Parochial Vicar   | 2003 |
+| Fr. Rafael Britanico-  Parish Priest  | 2002 |
 | Fr. Michael Marzan-  Parochial Vicar | 1999 |
-| Fr. Joker Bayta -	Parochial Vicar () | 1998 |
-| Fr. Jeudiel Galvo– Parochial Vicar () | 1997 |
-| Fr. Raul Pan-   Parish Priest | 1996 |
+| Fr. Joker Bayta-	Parochial Vicar  | 1998 |
+| Fr. Jeudiel Galvo– Parochial Vicar  | 1997 |
+| Fr. Raul Pan- Parish Priest | 1996 |
 | Fr. Leopoldo Zara-  Parochial Vicar () | 1995 |
 | Fr.Felix Martin Penetrante– Parochial Vicar () | 1993 |
 | Fr. Jose Rey Rellora– Parochial Vicar () | 1992 |
 | Fr. Alfonso Grageda-  Parish Priest () | 1991 |
-| Fr. Beda Martirez-  Parochial Vicar () | 1990 |
-| Fr. Rico Eclaz- Parochial Vicar () | 1989 |
-| Fr. Lorenzo Delos Santos– Parish Priest ()  | 1987 |
+| Fr. Beda Martirez- Parochial Vicar  | 1990 |
+| Fr. Rico Eclaz- Parochial Vicar  | 1989 |
+| Fr. Lorenzo Delos Santos– Parish Priest  | 1987 |
 | Fr. Leon Fajardo– Parochial Vicar | 1982 |
-| Fr. Roman Modino– Parish Priest ()  | 1981 |
+| Fr. Roman Modino– Parish Priest   | 1981 |
 | Fr. Wenceslao San Andres– Parochial Vicar | 1980 |
-| Fr. Benjamin Reblando- Parish Priest () | 1979 |
-| Fr. Felix O. Pasadilla-  Parish Priest () | 1976 |
-| Fr. Francisco Imperia-  Parish Priest () | 1972 |
-| Fr. Julieto Marco- Parish Priest () | 1970 |
-| Fr. Gerardo Espidido– Parish Priest () | 1968 |
-| Fr. Rosalio Olaybal– Parish Priest () | 1967 |
-| Fr. Manuel Concepcion– Parish Priest () | 1964 |
-| Fr. Ciriaco San Diego– Parish Priest () | 1956 |
-| Fr. Eleno Prieto () | 1940 |
-| Fr.Feliciano Puertollano () | 1930 |
-| Fr. Anselmo Borela () | 1927 |
-| Fr. Sergio Villareal () | 1921 |
-| Fr. Florenio  Cariño () | 1917 |
-| Fr. D.F Solcurio () | 1916 |
-| Fr. Victorino  Peña () | 1913 |
-| Fr. Manuel Crisol () | 1906 |
-| Fr. Praxidio Peñoro () | 1899 |
-| Fr. Sabino Muñuz () | 1897 |
-| Fr. Damaso Galvo () | 1890 |
-| Fr. Rafael Gascon () | 1879 |
-| Fr. Jacinto Franco () | 1870 |
-| Fr. Tomas Antonio () | 1869 |
+| Fr. Benjamin Reblando- Parish Priest  | 1979 |
+| Fr. Felix O. Pasadilla-  Parish Priest  | 1976 |
+| Fr. Francisco Imperia-  Parish Priest  | 1972 |
+| Fr. Julieto Marco- Parish Priest  | 1970 |
+| Fr. Gerardo Espidido– Parish Priest  | 1968 |
+| Fr. Rosalio Olaybal– Parish Priest  | 1967 |
+| Fr. Manuel Concepcion– Parish Priest  | 1964 |
+| Fr. Ciriaco San Diego– Parish Priest  | 1956 |
+| Fr. Eleno Prieto  | 1940 |
+| Fr.Feliciano Puertollano  | 1930 |
+| Fr. Anselmo Borela  | 1927 |
+| Fr. Sergio Villareal  | 1921 |
+| Fr. Florenio  Cariño  | 1917 |
+| Fr. D.F Solcurio  | 1916 |
+| Fr. Victorino  Peña  | 1913 |
+| Fr. Manuel Crisol  | 1906 |
+| Fr. Praxidio Peñoro  | 1899 |
+| Fr. Sabino Muñuz  | 1897 |
+| Fr. Damaso Galvo  | 1890 |
+| Fr. Rafael Gascon  | 1879 |
+| Fr. Jacinto Franco  | 1870 |
+| Fr. Tomas Antonio  | 1869 |
 | Fr. Luis Garcia, Fr. Esteban Oquelda, Fr. Serafin Herras | 1867 |
 | Fr. Felipe Saavedra  | 1866 |
 | Fray jose de Lillo OFM | 1864 |
